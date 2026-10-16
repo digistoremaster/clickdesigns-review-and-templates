@@ -1,4 +1,3 @@
-<div align="center">
 
 # 🚀 Stop Letting Bad Design Kill Your Conversions: The Ultimate 3D Engine for Tech-Savvy Affiliates
 
